@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Cookie
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Biology, 1900s history, the Jewish faith, Geometry, Technical Theatre, Grammatical authorization, and improv
+- 💞️ I’m looking to collaborate on not really much
+- 📫 How to reach me no way :(
